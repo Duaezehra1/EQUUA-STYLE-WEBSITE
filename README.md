@@ -1,0 +1,1 @@
+. Equua style is a website who aims to provide clothes for both men and women and with all categories without any gender biasness. The company aims to provide the best of the outfits that are trending in all the categories 
